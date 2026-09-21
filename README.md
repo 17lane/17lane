@@ -7,4 +7,4 @@
  my [info](https://rentry.co/MICK178/)&nbsp;&nbsp; ig ‎
 
 <details>
-<summary> (⁔• ༝ •⁔  ྀི)з</summary> THE mickey 17 fan. mickey haters don't int w meh. 
+<summary> (⁔• ༝ •⁔  ྀི)з</summary> i feel like im mickey you guys  ,,, ???no just me oh okay 
